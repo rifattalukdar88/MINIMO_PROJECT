@@ -1,2 +1,5 @@
 # MINIMO_PROJECT
-Great repository names are short and memorable. Need inspiration? How about solid-fortnight?
+
+
+
+https://rifattalukdar88.github.io/MINIMO_PROJECT/
